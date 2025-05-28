@@ -37,6 +37,6 @@ My ambition is to:
 
 ## 📫 How to Reach Me
 
-* **Email:** [adnan.mohammed.adnan@outlook.com](mailto:adnan.mohammed.adnan@outlook.com)
+* **Email:** [Adnan.Mohammed.Adnan@outlook.com](mailto:adnan.mohammed.adnan@outlook.com)
 
 ---
